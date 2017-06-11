@@ -1,2 +1,0 @@
-# beerlopburi
-39D23SJWgFJHTYqAHtXrcPDgYh75zHjZBA
